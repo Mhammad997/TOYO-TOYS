@@ -1,1 +1,1 @@
-This is Toys WEbsite
+This is Toys Website
